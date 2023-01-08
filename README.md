@@ -1,5 +1,7 @@
 # How-To-Use-PLR-Content-To-Make-Money
 
+![image1](https://user-images.githubusercontent.com/88873100/211185329-f0cb4a84-54db-4e76-9cef-adb0d7e3c29f.png)
+
 Content is the most important aspect of any online business, and every content creator or entrepreneur needs content to make money.
 
 The more high-quality content you will publish, the more eyes of your potential customers you are going to attract. Not only you can use the content for marketing purposes, but you can also sell it in the format of ebooks, courses, etc.
