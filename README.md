@@ -16,7 +16,7 @@ In this blog post, we are going to cover how to effectively use done-for-you PLR
 
 So here we go:
 
-**H3: Rebrand PLR content:**
+### Rebrand PLR content:
 
 Before using PLR content in any way it is highly recommended that you rebrand it. By rebranding, we mean adding your personal touch to it and changing content into unique. 
 
@@ -28,7 +28,7 @@ This specifically applies, if you want to publish PLR content as the articles on
 
 So if you are planning to get organic visitors to the PLR articles, rebranding is a must. Other than that, you can use PLR products as they are, but providing something unique to the audience is always a beneficial move.
 
-H3: Use PLR For Marketing Purposes:
+### Use PLR For Marketing Purposes:
 
 We have just covered how PLR articles could be used on website blogs once they are turned into unique, but there are more ways to use PLR content in marketing.
 
@@ -42,7 +42,7 @@ A lead magnet is a free gift that you can give to your potential subscribers so 
 
 PLR products like ebooks, software, cheatsheets, and action guides work perfectly as incentives for the user to leave his email address to you, and the great thing about them is that they are already created for you. 
 
-H3: Resell It Online:
+### Resell It Online:
 
 Digital products are in huge demand right now, and you can make tons of money while selling them.
 
@@ -52,7 +52,7 @@ Products like PLR ebooks, courses, planners, software, and others are selling no
 
 As we like to say - you only need to create a digital product once in order to sell it million times, but in this case, you don’t even have to create anything.
 
-H3: Other Ways To Sse PLR Content:
+### Other Ways To Sse PLR Content:
 
 It’s down to your imagination how you’d like to use PLR products as there are endless ways to make money with them. 
 
@@ -65,7 +65,7 @@ Using PLR content as the coaching resources
 Create new digital products from various PLR contents
 Use PLR content for link building, such as guest posts, WEB 2.0s, etc.
 
-H3: Want To Learn More About PLR?
+### Want To Learn More About PLR?
 
 Using PLR content can be a fantastic way to save yourself enormous amounts of time, and accelerate your marketing and business efforts.
 
